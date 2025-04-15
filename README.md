@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...learning about computers to work on cars
 - 🌱 I’m currently learning ... information teachnology
 - 💞️ I’m looking to collaborate on ...mechanics and computers
-- 📫 How to reach me ...2177196932
+- 📫 How to reach me ...2172046091
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...i love to dance and jam out with loud music
 
